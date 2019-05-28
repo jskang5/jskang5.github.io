@@ -1,1 +1,1 @@
-# jskang5.github.io
+Map of my favorite destinations
